@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @txlhbchazzanCT
-- 👀 I’m interested in expanding knowledge of and devekioubg proficency in different coding languages 
+- 👀 I’m interested in expanding knowledge of and developing proficency in different coding languages 
 - 🌱 I’m currently learning various codes through Boot Camp Coding Temple
 - 💞️ I’m looking to collaborate on projects to assist in learning the languages
 - 📫 How to reach me emonashkinsched@gmail.com
